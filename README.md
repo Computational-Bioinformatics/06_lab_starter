@@ -46,7 +46,8 @@ A valid article for this assignment would be one in which the research is clearl
 
 Once you have located an appropriate article in which science and ethics are mentioned, you are to complete the reflection questions of your lab.  
 
-## Part 2: Next lab
+## Part 2: Next Monday during class (7 November 2022)
+
 
 You and your group are to present the research from the article. In your presentation, you are to discuss the ethical thinking that the researchers presented in their work. You should also outline your own reflection on this article. Your presentation will last up to ten minutes.
 
