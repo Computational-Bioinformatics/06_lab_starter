@@ -12,6 +12,14 @@ Add Your Name Here
 ## Date
 31 October 2022
 
+### Presentation due 
+
+Class on : 7 November 2022 
+
+### Project due
+
+7 November 2022; 11:59pm
+
 ---
 
 Questions
